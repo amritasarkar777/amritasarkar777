@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @amritasarkar777
-- 👀 I’m interested in martech and gaming
-- 🌱 I’m currently learning to be a growth
+- 👀 I’m a product manager
+- 🌱 I’m currently expanding my understanding and AI skills
 - 💞️ I’m looking to collaborate on tech for good
 - 📫 How to reach me amrita.sarkar5@gmail.com
 
